@@ -1,0 +1,1 @@
+I lived in Hawaii for 3 years and it was an experience I wish I could re-live. It was a beautiful place on the levels of which I had never seen at the time. I would definitely go back and visit, though maybe not live there because I like the freedom of being able to drive in any direction.
