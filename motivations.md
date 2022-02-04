@@ -1,0 +1,1 @@
+I have yet to find a job with great fulfillment. I need something that keeps me engaged and challenged; something where there is always more to learn. Software development, of what little scale I've had experience in, satisfies those conditions and more. In addition, it provides a greater sense of accomplishment than what I've had in previous careers.
